@@ -10,5 +10,5 @@ I specialize in writing a variety of scripts, from automating everyday tasks to 
 
 ## Contact me
 
-My discord server: [Here](https://discord.gg/NUuXqpGxqa). 
-My discord username: oto.dev
+- My discord account: oto.dev
+- My discord server: [Click here](https://discord.gg/NUuXqpGxqa).
